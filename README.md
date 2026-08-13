@@ -1,1 +1,0 @@
-# aps-simeup-piemonte.github.io
